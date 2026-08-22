@@ -1,2 +1,2 @@
 # mind-hack-neural
-Morphological grid exhaustion breakthrough technology.
+Grid exhaustion breakthrough technology - blue ocean, cheap, fast, better.
